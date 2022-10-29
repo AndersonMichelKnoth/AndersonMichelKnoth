@@ -10,4 +10,4 @@ Here are some ideas to get you started:
 - 📫 How to reach me: anderson.knoth07@gmail.com
 - 😄 Pronouns: AMK
 - ⚡ Fun fact: ...
-- You can find me on [Linkedin](linkedin.com/in/anderson-michel-knoth-074244161).
+- You can find me on [Linkedin](https://www.linkedin.com/in/anderson-michel-knoth-074244161/).
